@@ -1,1 +1,1 @@
-Karya ini dilisensikan di bawah Creative Commons Attribution-NonCommercial-NoDerivatives 4.0 International License.
+Download bukunya ada disebelah kanan layar github kamu saat ini, bagian yang tertulis "Releases". Klick aja Hiragana Booknya
